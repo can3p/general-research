@@ -1,1 +1,1 @@
-This repository might contain very unrelated things I'm interesting in looking up information about.
+This repository might contain very unrelated things I'm interested in looking up information about.
